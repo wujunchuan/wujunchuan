@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 
 #### 🐸 Slogon
 
-> 苟利国家生死以，岂因祸福避趋之。
+> 江可泽民，亦可赛艇。
 
 #### 🥇 About me
 - 😎 I'm a 👨‍💻 Front-end web developer / ⛓️ Blockchain Victims / ⌨️ HHKB Keyboard berserker / 👎 Wechat objector
