@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 
 > 🚣‍♀️ 江可泽民，亦可赛艇。
 
-which means The Great Leader can benefit the people and also good at rowing.
+This means a great leader can benefit the people and is also good at rowing.
 
 **Excellent in both performing skills and moral integrity.**
 
@@ -31,9 +31,9 @@ which means The Great Leader can benefit the people and also good at rowing.
 
 #### 📛 About name
 
-In Min Nan pronunciation, My name (`Wu Junchuan`) is like `Goh John Trump`.
+In Hokkien pronunciation, My name (`Wu Junchuan`) is like `Goh John Trump`.
 
-So I’m **not** Donald John Trump's supporters.
+So I’m **not** Donald John Trump's supporter.
 
 #### 📫 How to find me?
 - 🤖 Telegram [goh_john_trump](https://t.me/goh_john_trump)
