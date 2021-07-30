@@ -29,6 +29,12 @@ which means The Great Leader can benefit the people and also good at rowing.
 - ✈️ Traveled to 🇭🇰 Hong Kong / 🇯🇵 Tokyo / 🇸🇬 Singapore / 🇹🇼 Chinese Taipei / 🇨🇳 other Mainland China cities.
 - 🏖 Living in Amoy Fujian at this moment.
 
+#### 📛 About name
+
+In Min Nan pronunciation, My name (`Wu Junchuan`) is like `Goh John Trump`.
+
+So I’m **not** Donald Trump's fans.
+
 #### 📫 How to find me?
 - 🤖 Telegram [goh_john_trump](https://t.me/goh_john_trump)
 - 🐦 TW [@wujunchuan1994](https://twitter.com/wujunchuan1994)
