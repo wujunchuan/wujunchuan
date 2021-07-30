@@ -17,7 +17,11 @@ Here are some ideas to get you started:
 
 #### 🐸 Slogon
 
-> 江可泽民，亦可赛艇。
+> 🚣‍♀️ 江可泽民，亦可赛艇。
+
+which means The Great Leader can benefit the people and also good at rowing.
+
+**Excellent in both performing skills and moral integrity.**
 
 #### 🥇 About me
 - 😎 I'm a 👨‍💻 Front-end web developer / ⛓️ Blockchain Victims / ⌨️ HHKB Keyboard berserker / 👎 Wechat objector
