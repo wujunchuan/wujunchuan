@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 #### 🥇 About me
 - 😎 I'm a Front-end web developer / Blockchain Victims / HHKB Keyboard&Terminal berserker / Wechat objector（FuckWeChat）
 - 🧑🏼‍💻 Worked at [Gaoding](https://www.gaoding.com/) in Amoy.
-- ✈️ Traveled to Hong Kong / Tokyo / Singapore / Taipei / other Mainland China cities.
+- ✈️ Traveled to 🇭🇰 Hong Kong / 🇯🇵 Tokyo / 🇸🇬 Singapore / 🇹🇼 Chinese Taipei / 🇨🇳 other Mainland China cities.
 - 🏖 Living in Amoy Fujian at this moment.
 
 #### 📫 How to find me?
