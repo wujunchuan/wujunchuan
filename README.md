@@ -33,7 +33,7 @@ which means The Great Leader can benefit the people and also good at rowing.
 
 In Min Nan pronunciation, My name (`Wu Junchuan`) is like `Goh John Trump`.
 
-So I’m **not** Donald Trump's supporters.
+So I’m **not** Donald John Trump's supporters.
 
 #### 📫 How to find me?
 - 🤖 Telegram [goh_john_trump](https://t.me/goh_john_trump)
