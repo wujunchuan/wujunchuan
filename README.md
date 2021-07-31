@@ -1,4 +1,6 @@
-<img src="https://user-images.githubusercontent.com/7511631/127726722-37471de1-def1-431d-9c6d-2cbc0e0f5c55.jpeg" width="30%" align="right" />
+<img src="https://user-images.githubusercontent.com/7511631/127738918-b611d49d-916a-45e0-a327-c332ea6aa712.png" width="28%" align="right" />
+<!-- <img src="https://user-images.githubusercontent.com/7511631/127726722-37471de1-def1-431d-9c6d-2cbc0e0f5c55.jpeg" width="30%" align="right" /> -->
+
 
 ### Hi Mogician 👋
 
