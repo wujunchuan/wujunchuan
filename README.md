@@ -4,21 +4,23 @@
 
 > 🚣‍♀️ 江可泽民，亦可赛艇。
 
-This means a great leader can benefit the people and is also good at rowing.
+This means a great leader can benefit the people but also versatile talent just like _[The Man Who Changed China](https://www.amazon.com/Man-Who-Changed-China-Legacy/dp/B005ZOKFTW)_.
 
-**Excellent in both performing skills and moral integrity.**
+**Excellent in both performing skills and moral integrity.** Another Chinese near synonym for「德艺双磬」
 
 #### 📛 About name
 
-In Hokkien pronunciation, My name (`Wu Junchuan`) is like `Goh John Trump`.
+My name (Wu Junchuan) is like Goh John Trump in Hokkien pronunciation.
 
 So I’m **not** Donald John Trump's supporter.
 
 #### 🥇 About me
 - 😎 I'm a 👨‍💻 Front-end web developer / ⛓️ Blockchain Victims / ⌨️ HHKB Keyboard berserker / 👎 Wechat objector
-- 🧱 Worked at [Gaoding](https://www.gaoding.com/) in Amoy.
-- ✈️ Traveled to 🇭🇰 Hong Kong / 🇯🇵 Tokyo / 🇸🇬 Singapore / 🇹🇼 Chinese Taipei / 🇨🇳 other Mainland China cities.
+- 🧱 Working at [Gaoding](https://www.gaoding.com/) in Amoy.
 - 🏖 Living in Amoy Fujian at this moment.
+- 🎸 Learned Ukulele but failed.
+- ✈️ Traveled to 🇭🇰 Hong Kong / 🇯🇵 Tokyo / 🇸🇬 Singapore / 🇹🇼 Chinese Taipei / 🇨🇳 other Mainland China cities.
+
 
 #### 📫 How to find me?
 - 🤖 Telegram [goh_john_trump](https://t.me/goh_john_trump)
