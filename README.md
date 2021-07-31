@@ -2,13 +2,15 @@
 
 ### Hi Mogician 👋
 
-#### 🐸 Slogon
+#### 🐸 About Slogon
 
 > 🚣‍♀️ 江可泽民，亦可赛艇。
 
 This means a great leader can benefit the people but also versatile talent just like _[The Man Who Changed China](https://www.amazon.com/Man-Who-Changed-China-Legacy/dp/B005ZOKFTW)_.
 
-**Excellent in both performing skills and moral integrity.** Another Chinese near synonym for「德艺双磬」
+**Excellent in both performing skills and moral integrity.**
+
+Another Chinese near synonym for「德艺双馨」
 
 #### 📛 About name
 
