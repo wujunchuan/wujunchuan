@@ -1,3 +1,5 @@
+<img src="https://user-images.githubusercontent.com/7511631/127726436-3dadac09-c4ec-4efb-a849-07c6fac21a9a.png" width="30%" align="right" />
+
 ### Hi Mogician 👋
 
 #### 🐸 Slogon
