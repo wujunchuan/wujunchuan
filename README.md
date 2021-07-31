@@ -1,4 +1,4 @@
-<img src="https://user-images.githubusercontent.com/7511631/127726436-3dadac09-c4ec-4efb-a849-07c6fac21a9a.png" width="30%" align="right" />
+<img src="https://user-images.githubusercontent.com/7511631/127726722-37471de1-def1-431d-9c6d-2cbc0e0f5c55.jpeg" width="30%" align="right" />
 
 ### Hi Mogician 👋
 
