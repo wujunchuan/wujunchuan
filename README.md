@@ -35,4 +35,4 @@ So I’m **not** Donald John Trump's supporter.
 - 📸 IG [@wujunchuan1994](https://www.instagram.com/wujunchuan1994/)
 - 📝 Personal Blog [苟岂](https://fuckwechat.com/)
 - 🤠 FB [@junchuan.wu](https://www.facebook.com/junchuan.wu/)
-- 📮 wujunchuan2008@gmail.com
+- 📮 admin@fuckwechat.com
