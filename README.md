@@ -3,7 +3,7 @@
 <!-- <img src="https://user-images.githubusercontent.com/7511631/127726722-37471de1-def1-431d-9c6d-2cbc0e0f5c55.jpeg" width="30%" align="right" /> -->
 
 
-### Hi Mogician 👋
+### Aloha Mogician 👋
 
 #### 🐸 About Slogon
 
@@ -25,7 +25,7 @@ So I’m **not** Donald John Trump's supporter.
 - 😎 I'm a 👨‍💻 Front-end web developer / ⛓️ Blockchain Victims / ⌨️ HHKB Keyboard berserker / 👎 Wechat objector
 - 🧱 Working at [Gaoding](https://www.gaoding.com/) in Amoy.
 - 🏖 Living in Amoy Fujian at this moment.
-- 🎸 Learned Ukulele but failed.
+- 🎸 Learned Ukulele (Hawaii style!) but failed.
 - ✈️ Traveled to 🇭🇰 Hong Kong / 🇯🇵 Tokyo / 🇸🇬 Singapore / 🇹🇼 Chinese Taipei / 🇨🇳 other Mainland China cities.
 
 
