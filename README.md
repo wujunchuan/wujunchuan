@@ -3,7 +3,7 @@
 <!-- <img src="https://user-images.githubusercontent.com/7511631/127726722-37471de1-def1-431d-9c6d-2cbc0e0f5c55.jpeg" width="30%" align="right" /> -->
 
 
-### Aloha Mogician 👋
+### Hi Mogician 👋 (Aloha~🐸ii)
 
 #### 🐸 About Slogon
 
