@@ -3,7 +3,14 @@
 <!-- <img src="https://user-images.githubusercontent.com/7511631/127726722-37471de1-def1-431d-9c6d-2cbc0e0f5c55.jpeg" width="30%" align="right" /> -->
 
 
+<!-- ![image](https://user-images.githubusercontent.com/7511631/141262282-d670495a-7178-4720-ae77-262cf6501383.png) -->
+
+
 ### Hi Mogician 👋 (Aloha~🐸ii)
+
+Welcome to 
+
+<img src="https://user-images.githubusercontent.com/7511631/141262282-d670495a-7178-4720-ae77-262cf6501383.png" width="40%" />
 
 #### 🐸 About Slogon
 
