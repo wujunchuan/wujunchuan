@@ -33,7 +33,7 @@ So I’m **not** Donald John Trump's supporter.
 - 🧱 Working at [Gaoding](https://www.gaoding.com/) in Amoy.
 - 🏖 Living in Amoy Fujian at this moment.
 - 🎸 Learned Ukulele (Hawaii style!) but failed.
-- ✈️ Traveled to 🇭🇰 Hong Kong / 🇯🇵 Tokyo / 🇸🇬 Singapore / 🇹🇼 Chinese Taipei / 🇨🇳 other Mainland China cities.
+- ✈️ Traveled to 🇭🇰 Hong Kong / 🇯🇵 Japan (Tokyo) / 🇦🇪 United Arab Emirates (Dubai & Abu Dhabi) / 🇸🇬 Singapore / 🇹🇼 Chinese Taipei / 🇨🇳 other Mainland China cities.
 
 
 #### 📫 How to find me?
